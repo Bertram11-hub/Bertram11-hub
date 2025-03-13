@@ -1,7 +1,7 @@
 ## Hi 👋 My name is Irechukwu Bertram
 ==================================
 
-Blockchain enthusiast, web developer and programmer, node runner, community moderator
+Blockchain enthusiast, web developer and programmer, node runner, community moderator, graphics designer 
 -------------------------------------------------------------------------------------
 
 I have Been in the crypto space for 6yrs+, and have acquired many skills, knowledge and experience over this accumulated years.
